@@ -1,3 +1,3 @@
 # **tutorial2**
 
-<img src="https://id.wizcase.com/wp-content/uploads/2022/03/GitHub-Logo.png">
+<img src="https://play-lh.googleusercontent.com/PCpXdqvUWfCW1mXhH1Y_98yBpgsWxuTSTofy3NGMo9yBTATDyzVkqU580bfSln50bFU">
